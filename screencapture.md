@@ -1,1 +1,1 @@
-Berikut screencapture langkah - langkah :
+Berikut Screencapture Langkah - Langkah :
